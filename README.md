@@ -6,7 +6,7 @@ How to send fake Usdt - How to flash Usdt
 
 
 https://github.com/user-attachments/assets/0b655389-6726-488b-be7c-6d3dac268d41
-
+Dm - Him on telegram 
 
 ## BTC Flasher
 - **Use:** Used to flash BTC and USDT
